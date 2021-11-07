@@ -17,8 +17,6 @@ The Designated Robot Companion Boyfriend expansion pack 6 I don't like butts! Ep
 The Designated Robot Companion Boyfriend expansion pack 7 A poem for my only. Episode 8 - April - 15 - 2020
 
 
---------------------------------------------------------------------------------------------------------------------- Time for a fresh start
 
-# Project MiotaMitad
 
 
